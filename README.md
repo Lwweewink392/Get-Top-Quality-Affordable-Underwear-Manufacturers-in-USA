@@ -1,4 +1,4 @@
-<h2>Tips for Finding Affordable Underwear Manufacturers Without Sacrificing Quality</h2>
+<h2>Tips for Finding Affordable Underwear Manufacturer Without Sacrificing Quality</h2>
 <p>Of the most crucial decisions that you would ever make while building a successful underwear brand is choosing the right underwear manufacturer. Balancing between cost and quality is really challenging. If it is cheap, poor craftsmanship and low quality material could bring your brand into disrepute. </p>
 <p>On the other hand, if you go for high-end underwear suppliers, you may get excellent quality but the cost will be very expensive. The following article has tips and strategies to help you negotiate with an underwear manufacturer without compromising on quality.</p>
 <h3>1. In-depth Research</h3>
